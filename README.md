@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @HarryZ2k3
+- 👀 I’m interested in computer
+- 🌱 I’m currently learning how to code
+- 📫 How to reach me phuongdai.saigon@gmail.com
