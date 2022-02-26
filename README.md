@@ -1,4 +1,6 @@
-- 👋 Hi, I’m @HarryZ2k3
+- 👋 Hi, My name is Đại but you can call me Harry.
+- Currently a Computer science student at International University National University of Ho Chi Minh City.
+- I prefer using English as my language of communications.
 - 👀 I’m interested in computer
 - 🌱 I’m currently learning how to code
 - 📫 How to reach me phuongdai.saigon@gmail.com
