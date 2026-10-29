@@ -7,5 +7,6 @@
 - My motto: "Hòa nhập chứ không hòa tan" and "Proud of who you are no matter how different you are"
 - What really grinds my gear: people who think they are better than everyone else
 
+Personal website: https://harryz2k3.github.io/huynhphuondai.github.io/about/
 Trying to make the world a better place, one nice thing to another person at a time.
 Thanks for reading this far, please reach me at my email: phuongdai.saigon@gmail.com
