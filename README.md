@@ -8,5 +8,6 @@
 - What really grinds my gear: people who think they are better than everyone else
 
 Personal website: [LINK](https://huynhphuongdai.github.io/)
+
 Trying to make the world a better place, one nice thing to another person at a time.
 Thanks for reading this far, please reach me at my email: phuongdai.saigon@gmail.com
